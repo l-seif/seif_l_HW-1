@@ -38,3 +38,6 @@ MY ACCOMPLISHMENTS AND SKILLS!
 
  ~ Hardships
     - I have gone through varying challenges in my life. Going from mental/physical health/injury to building up failing grades to straight +95% student through 13 years. I struggles with communication, socializing and being confident. With help from great people, I gotten much better at all of these skills. I am very happy from where these hardships brought me to and don't regret a single thing.
+
+
+    testing
