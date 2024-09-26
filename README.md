@@ -8,3 +8,4 @@ I had studied Computer Sciene during my highschool by which i had basic knowledg
 Besides studies, i am so much interested into basketball. There was a time when i used to play every single day. It helped me a lot as it keeps me physically and mentally fit, cooperate with teammates and meet new people during tournaments. I have started being extrovert since the time i started playing. 
 
 Apart from that, I have a fear of reptiles. I even don't want to see them. Specially snakes.
+
