@@ -51,4 +51,4 @@ MY ACCOMPLISHMENTS AND SKILLS!
     - London South Collegiate's 100th year anniversary front sign redesign (saved it from the Alumni's version... they broke every design rule there could have been)
     - Used to be the Yearbook Student Rep for two years running. Sadly, my part of the work and more was put in but majority of members and teachers did not do the same, so in both years it fell apart.
 
-![tiramisu](img/chocolate-tiramisu-featured-2.jpg)
+![tiramisu](img/chocolate-tiramisu-featured-2.jepg)
