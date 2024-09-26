@@ -34,3 +34,5 @@ MY ACCOMPLISHMENTS AND SKILLS!
     - I have worked with clients before during grade 11 co-op, and quite a few have used my work. i.e. "Women Rock for Men's Mental Health".
     - London South Collegiate's 100th year anniversary front sign redesign (saved it from the Alumni's version... they broke every design rule there could have been)
     - Used to be the Yearbook Student Rep for two years running. Sadly, my part of the work and more was put in but majority of members and teachers did not do the same, so in both years it fell apart.
+
+![alt text] https://www.google.com/search?sca_esv=d2ba6b5c7e3c259e&sca_upv=1&q=tiramisu&udm=2&fbs=AEQNm0BcOTtrxLAuu_QwMeob8rlZbzgoNyvm-EGzMCdSVm7atMhtCrLJ0m6k84h6T6DB015KDgfMdV5fRwNW4AHfHYi8ZkuulKHcIqH_0bI45QA1u3eV8qNxEAB73h7Hj8sl9Sh_YHdc_id-0Tbjyc3TmXgmTVC6jKj0ObaK1H-uy0PMl9HYytVadjc_8kp6g_-GCnezCajPSxrfRj_yz9ooq9Nv5G1hug&sa=X&sqi=2&ved=2ahUKEwiTg42p2eCIAxU5pIkEHQmVCv8QtKgLegQIEBAB&biw=1915&bih=1019&dpr=2#vhid=qSPyhBT_SPgGoM&vssid=mosaic 
