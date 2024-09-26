@@ -11,9 +11,10 @@ Besides studies, i am so much interested into basketball. There was a time when 
 
 Apart from that, I have a fear of reptiles. I even don't want to see them. Specially snakes.
 
-![basketball](img/basketball.jepg)
 
------------
+![Basketball](img/basketball.jpg)
+
+
 
 LAILA
 
